@@ -1,6 +1,9 @@
 # Bootcamps
 
 ## National Fund
-*Instructor* Aziz Alsaffar @octowl aziz@joincoded.com
-*Student* Eiman Boujarwah @copy4ever copy4ever@gmail.com
-*Student* Anwar AlShammari @anwarsh2018
+*Instructor Section*
+ Aziz Alsaffar @octowl aziz@joincoded.com
+*Student Section*
+ Eiman Boujarwah @copy4ever copy4ever@gmail.com
+
+ Anwar AlShammari @anwarsh2018
