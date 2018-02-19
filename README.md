@@ -1,5 +1,12 @@
 # Bootcamps
 
 ## National Fund
-*Instructor* Aziz Alsaffar @octowl aziz@joincoded.com
-*Student* Anwar AlShammari @anwarsh2018
+**Instructors**
+
+ Aziz Alsaffar @octowl aziz@joincoded.com
+
+**Students**
+
+ Eiman Boujarwah @copy4ever
+
+ Anwar AlShammari @anwarsh2018
