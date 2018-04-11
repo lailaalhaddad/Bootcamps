@@ -15,11 +15,18 @@
 
 
 **Students:**
-* Yahya Qasem @ynqasem
+* Yahya Qasem @ynqasem y.n.qasem@gmail.com
 * Mohammad Ashkanani @M3ashkanani
 * Hamsa Makia @DarthHamsa hamsa@joincoded.com
 * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
 * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
 * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
-* Meshal Alameeri @busale7 meshal.alameeri@gmail.com
+  * Dana Shehab @Dshehab
+  * Reham Alsabbagh @rehamalsabbagh
+  * Zouman Al-Mesbah @zoomanbm
+
+
+
+  
+  
 
