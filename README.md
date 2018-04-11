@@ -14,4 +14,6 @@
   * Hamsa Makia @DarthHamsa hamsa@joincoded.com
   * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
 
+
 **Students:**
+* Meshal Alameeri @busale7 meshal.alameeri@gmail.com
