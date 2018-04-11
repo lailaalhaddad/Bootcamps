@@ -16,6 +16,8 @@
 
 
 **Students:**
+* Bader Alsabah @b417er
+* Meshal Alameeri @busale7 meshal.alameeri@gmail.com
   * Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
   * Reem AlSharqawi
   * Dana Shehab @Dshehab
