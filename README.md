@@ -12,6 +12,8 @@
 ## Spring2018
 **Instructors:**
   * Aziz Alsaffar @octowl aziz@joincoded.com
+  * Hamsa Makia @DarthHamsa hamsa@joincoded.com
+  * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
 
 
 **Students:**
@@ -21,12 +23,9 @@
 * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
 * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
 * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
-  * Dana Shehab @Dshehab
-  * Reham Alsabbagh @rehamalsabbagh
-  * Zouman Al-Mesbah @zoomanbm
-
-
-
-  
-  
-
+* Dana Shehab @Dshehab
+* Reham Alsabbagh @rehamalsabbagh
+* Zouman Al-Mesbah @zoomanbm
+* Bader Alsabah @b417er
+* Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
+* Reem AlSharqawi
