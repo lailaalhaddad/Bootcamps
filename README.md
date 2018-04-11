@@ -15,15 +15,11 @@
 
 **Students:**
   * Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
+  * Reham Alsabbagh @rehamalsabbagh
+  * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
   * Zouman Al-Mesbah @zoomanbm
   * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
-  * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
-
-
-
   * Mohammad Ashkanani @M3ashkanani
   * Hamsa Makia @DarthHamsa hamsa@joincoded.com
   * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
-  * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
-  * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
-  * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
+
