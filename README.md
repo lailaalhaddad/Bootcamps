@@ -11,5 +11,6 @@
 ## Spring2018
 **Instructors:**
   * Aziz Alsaffar @octowl aziz@joincoded.com
+  * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
   
 **Students:**
