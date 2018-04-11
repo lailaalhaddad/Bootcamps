@@ -11,6 +11,11 @@
 ## Spring2018
 **Instructors:**
   * Aziz Alsaffar @octowl aziz@joincoded.com
-  
+  * Hamsa Makia @DarthHamsa hamsa@joincoded.com
+  * Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
+
+
 **Students:**
   * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
+  * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
+
