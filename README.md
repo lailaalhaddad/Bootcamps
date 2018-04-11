@@ -28,6 +28,6 @@
 * Zouman Al-Mesbah @zoomanbm
 * Bader Alsabah @b417er
 * Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
-* Reem AlSharqawi
+* Reem AlSharqawi @ReemS91 sharqaswi.reem@gmail.com
 * Alyaa AlAteyah @Alyaa86
 
