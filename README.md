@@ -18,3 +18,5 @@
 **Students:**
 * Bader Alsabah @b417er
 * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
+  * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
+  * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
