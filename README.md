@@ -17,6 +17,7 @@
 
 **Students:**
   * Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
+  * Reem AlSharqawi
   * Dana Shehab @Dshehab
   * Reham Alsabbagh @rehamalsabbagh
   * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
