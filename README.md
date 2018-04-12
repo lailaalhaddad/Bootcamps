@@ -13,4 +13,4 @@
   * Aziz Alsaffar @octowl aziz@joincoded.com
   
 **Students:**
-  * Hamad Kamshad @DesertDemons H.M.Kamshad@Gmail.com
+  * Hamad Kamshad @DesertDemons 
