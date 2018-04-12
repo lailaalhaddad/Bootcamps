@@ -17,6 +17,7 @@
 
 
 **Students:**
+  * Hamad Kamshad @DesertDemons 
   * Yahya Qasem @ynqasem y.n.qasem@gmail.com
   * Mohammad Ashkanani @M3ashkanani
   * Meshal Alameeri @busale7 meshal.alameeri@gmail.com
@@ -28,3 +29,4 @@
   * Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
   * Reem AlSharqawi @ReemS91 sharqaswi.reem@gmail.com
   * Alyaa AlAteyah @Alyaa86
+
