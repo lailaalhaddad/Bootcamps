@@ -47,4 +47,18 @@
 
 **Students:**
 
+
+
+- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+
 - Seham @scode97 sehameldeen1997@gmail.com
+
+- Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
+
+- Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
+
+1. abdullah alrayes
+
+- Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
+- Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
+
