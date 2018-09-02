@@ -72,8 +72,13 @@
 - Hana AlRassam @HanaRsm h.alrassam@live.com
 
 - abdullah alrayes @abdullahalrayes abdullah.a.abas@gmail.com
+
 - firas alayyoubi @Firasu lecters_app@hotmail.com
+
 - Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
+
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
+
+- Ebraheem Alkandery @ibrahiim.alk  ibrahiim.alk@gmail.com
 
 
