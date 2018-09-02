@@ -48,43 +48,22 @@
 **Students:**
 
 
-- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
 
 
-* Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
-
-
-* Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
-
-1. abdullah alrayes
-
-
-
-* Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
 
 * Seham @scode97 sehameldeen1997@gmail.com
-
-
-
-
 * Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
-
-
-
-
-
-
 - Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
-
+- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+- Seham @scode97 sehameldeen1997@gmail.com
+- Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
+- Khaled Ibrahim @khaledamibrahim khaledamibrahim@gmail.com
+- Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
+- Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
 - Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
-
 - Hana AlRassam @HanaRsm h.alrassam@live.com
-
 - abdullah alrayes @abdullahalrayes abdullah.a.abas@gmail.com
 - firas alayyoubi @Firasu lecters_app@hotmail.com
 - Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
-
-
-
 - Safiah AlSaffar @sophie.alsaffar@gmail.com
