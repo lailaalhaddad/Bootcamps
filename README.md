@@ -46,6 +46,20 @@
 - Fawaz Almutairi @smokeme fawaz@joincoded.com
 
 **Students:**
-- Ebraheem Alkandery @ibrahiim.alk  ibrahiim.alk@gmail.com
 
+- Seham @scode97 sehameldeen1997@gmail.com
+- Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
+- Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
+- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+- Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
+- Khaled Ibrahim @khaledamibrahim khaledamibrahim@gmail.com
+- Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
+- Shehab El-Essa shehab2014kuwait@gmail.com
+- Hana AlRassam @HanaRsm h.alrassam@live.com
+- Abdullah Alrayes @abdullahalrayes abdullah.a.abas@gmail.com
+- Firas Alayyoubi @Firasu lecters_app@hotmail.com
+- Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
+- Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
+- Safiah AlSaffar @sophie.alsaffar@gmail.com
+- Ebraheem Alkandery @ibrahim.alk ibrahiim.alk@gmail.com (trouble maker)
 
