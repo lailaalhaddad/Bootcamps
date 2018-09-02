@@ -65,15 +65,9 @@
 
 
 
+- Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
 * Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
-
-
 - Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
-
-- Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
-
-
-1.  abdullah alrayes
 
 - Hana AlRassam @HanaRsm h.alrassam@live.com
 
