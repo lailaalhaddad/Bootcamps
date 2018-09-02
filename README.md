@@ -50,6 +50,10 @@
 
 
 
+
+* Seham @scode97 sehameldeen1997@gmail.com
+* Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
+- Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
 - Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
 - Seham @scode97 sehameldeen1997@gmail.com
 - Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
@@ -62,4 +66,4 @@
 - firas alayyoubi @Firasu lecters_app@hotmail.com
 - Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
-
+- Safiah AlSaffar @sophie.alsaffar@gmail.com
