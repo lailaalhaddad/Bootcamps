@@ -38,4 +38,8 @@
 
 **Instructors:**
 
+- Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
+- Hussein Almutawa
+- Fawaz Almutairi @smokeme fawaz@joincoded.com
+
 **Students:**
