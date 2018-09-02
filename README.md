@@ -41,5 +41,8 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 - Hamsa Makia @DarthHamsa hamsa@joincoded.com
 - Mshary AlSharekh @darkwight m.alsharekh94@gmail.com
+- Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
+- Hussein Almutawa
+- Fawaz Almutairi @smokeme fawaz@joincoded.com
 
 **Students:**
