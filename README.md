@@ -49,3 +49,4 @@
 
 - Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
 1. abdullah alrayes
+- Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
