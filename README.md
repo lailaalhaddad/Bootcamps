@@ -60,6 +60,11 @@
 - Khaled Ibrahim @khaledamibrahim khaledamibrahim@gmail.com
 - Noura AlRashidi @NouraAlRashidi alrashidi.n590@gmail.com
 - Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
+
+
+1. abdullah alrayes
+-Shehab El-Essa shehab2014kuwait@gmail.com
+
 - Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
 - Hana AlRassam @HanaRsm h.alrassam@live.com
 - abdullah alrayes @abdullahalrayes abdullah.a.abas@gmail.com
@@ -67,3 +72,4 @@
 - Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
 - Safiah AlSaffar @sophie.alsaffar@gmail.com
+
