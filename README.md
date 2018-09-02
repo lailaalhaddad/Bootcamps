@@ -40,5 +40,6 @@
 
 - Aziz Alsaffar @octowl aziz@joincoded.com
 - Hamsa Makia @DarthHamsa hamsa@joincoded.com
+- Mshary AlSharekh @darkwight m.alsharekh94@gmail.com
 
 **Students:**
