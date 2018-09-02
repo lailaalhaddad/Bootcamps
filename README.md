@@ -52,5 +52,8 @@
 - Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
 
 - Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
+
 1. abdullah alrayes
+
+- Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
