@@ -46,8 +46,16 @@
 - Fawaz Almutairi @smokeme fawaz@joincoded.com
 
 **Students:**
+- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+
+
+- Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
 
 - Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
 
-1.  abdullah alrayes
-2.  firas alayyoubi @Firasu lecters_app@hotmail.com
+
+- abdullah alrayes
+- firas alayyoubi @Firasu lecters_app@hotmail.com
+- Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
+- Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
+
