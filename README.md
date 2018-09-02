@@ -56,3 +56,4 @@
 1. abdullah alrayes
 
 - Zaid AlRajaan @zalrajaan z.alrajaan@gmail.com
+- Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
