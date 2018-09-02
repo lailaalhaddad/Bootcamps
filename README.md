@@ -38,4 +38,7 @@
 
 **Instructors:**
 
+- Aziz Alsaffar @octowl aziz@joincoded.com
+- Hamsa Makia @DarthHamsa hamsa@joincoded.com
+
 **Students:**
