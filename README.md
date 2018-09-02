@@ -50,19 +50,23 @@
 
 
 
-- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+* Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
 
-- Seham @scode97 sehameldeen1997@gmail.com
+* Seham @scode97 sehameldeen1997@gmail.com
 
-- Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+* Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
 
 * Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
+
+* Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
+
+* Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
+
 
 
 
 * Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
 
-1.  abdullah alrayes
 
 - Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
 
