@@ -50,8 +50,6 @@
 - Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
 
 * Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
-  -Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
+* Ghalyah Al-Ansari @GhalyahF alansari.239@gmail.com
 
 * Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
-
-1.  abdullah alrayes
