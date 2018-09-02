@@ -47,6 +47,10 @@
 
 **Students:**
 - Qutaiba Alhajri @Qutaibaalh qutaibaalh@icloud.com
+
+
+- Abdulrahman Aldelaigan @Aldelaigan a.aldelaigan@gmail.com
+
 - Abdulla AlJazzaf @aaljazza aaljazza@gmail.com
 1. abdullah alrayes
 
