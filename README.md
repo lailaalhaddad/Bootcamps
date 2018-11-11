@@ -70,5 +70,6 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 - Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
 
-
 **Students:**
+
+- Fawaz Naouchi @Fnaouchi f.naouchi@hotmail.com (The Undertaker)
