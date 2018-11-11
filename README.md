@@ -73,4 +73,8 @@
 **Students:**
 
 - Fawaz Naouchi @Fnaouchi f.naouchi@hotmail.com (The Undertaker)
+- Salma Al Mutawa @SalmaAlMutawa s.almutawa96@gmail.com
+- Samy AbdelAal @SamyAbdelAal sam.omran@hotmail.com (professional semi-noob)
+- Shorook Saleh @shorookMS shorook.m.saleh@gmail.com
 - Khalid Mohamed @khm56 kalmohammed56@gmail.com (Mr. Wanna leave Early)
+
