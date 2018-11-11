@@ -71,5 +71,5 @@
 - Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
 
 **Students:**
-
 - Samy AbdelAal @SamyAbdelAal sam.omran@hotmail.com (professional semi-noob)
+- Khalid Mohamed @khm56 kalmohammed56@gmail.com (Mr. Wanna leave Early)
