@@ -70,6 +70,15 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 - Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
 
-
 **Students:**
-Mohammad AlSayegh @SENKWATE senkwate@hotmail.com
+- Sazida Hossain @sazidahossain sazidahossain@gmail.com
+- May Yassin @mayyassin maymay27205@gmail.com
+- Fawaz Naouchi @Fnaouchi f.naouchi@hotmail.com (The Undertaker)
+- Alaa Naser @AlaaNaser95 alaanaser95.95@gmail.com
+- Salma Al Mutawa @SalmaAlMutawa s.almutawa96@gmail.com
+- Samy AbdelAal @SamyAbdelAal sam.omran@hotmail.com (professional semi-noob)
+- Shorook Saleh @shorookMS shorook.m.saleh@gmail.com
+- Khalid Mohamed @khm56 kalmohammed56@gmail.com (Mr. Wanna leave Early)
+- Mariam Ali @grumpy13
+- Mohammad AlSayegh @SENKWATE senkwate@hotmail.com
+
