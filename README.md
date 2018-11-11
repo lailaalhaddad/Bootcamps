@@ -70,6 +70,7 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 - Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
 
-
 **Students:**
+
+- Shorook Saleh @shorookMS shorook.m.saleh@gmail.com
 - Khalid Mohamed @khm56 kalmohammed56@gmail.com (Mr. Wanna leave Early)
