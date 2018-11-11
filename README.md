@@ -62,3 +62,7 @@
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
 - Safiah AlSaffar @sophie.alsaffar@gmail.com
 - Ebraheem Alkandery @ibrahim.alk ibrahiim.alk@gmail.com (trouble maker)
+
+## Fresh Grad Summer 2018
+
+**Instructors:**
