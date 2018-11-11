@@ -67,6 +67,8 @@
 
 **Instructors:**
 
+- Aziz Alsaffar @octowl aziz@joincoded.com
 - Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
+
 
 **Students:**
