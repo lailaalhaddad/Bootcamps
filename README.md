@@ -67,4 +67,6 @@
 
 **Instructors:**
 
+- Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
+
 **Students:**
