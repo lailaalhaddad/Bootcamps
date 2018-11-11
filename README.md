@@ -11,7 +11,7 @@
 - Eiman Boujarwah @copy4ever
 - Anwar AlShammari @anwarsh2018
 
-## Spring2018
+## Spring 2018
 
 **Instructors:**
 
@@ -34,7 +34,7 @@
 - Reem AlSharqawi @ReemS91 sharqaswi.reem@gmail.com
 - Alyaa AlAteyah @Alyaa86
 
-## Summer18
+## Summer 2018
 
 **Instructors:**
 
@@ -62,4 +62,3 @@
 - Sondus AlMutairi @sjzalmutairi sjzalmutairi@gmail.com
 - Safiah AlSaffar @sophie.alsaffar@gmail.com
 - Ebraheem Alkandery @ibrahim.alk ibrahiim.alk@gmail.com (trouble maker)
-
