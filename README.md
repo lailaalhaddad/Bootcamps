@@ -72,6 +72,7 @@
 
 **Students:**
 
+- Fawaz Naouchi @Fnaouchi f.naouchi@hotmail.com (The Undertaker)
 - Alaa Naser @AlaaNaser95 alaanaser95.95@gmail.com
 - Salma Al Mutawa @SalmaAlMutawa s.almutawa96@gmail.com
 - Samy AbdelAal @SamyAbdelAal sam.omran@hotmail.com (professional semi-noob)
