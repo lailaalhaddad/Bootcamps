@@ -71,7 +71,6 @@
 - Laila Alkandery - 来来　@Lailz lailaabdulraheem@gmail.com
 
 **Students:**
-
 - Hessah Alkhudhair @HessahAlK hessah.alkhudhair@gmail.com
 - Sazida Hossain @sazidahossain sazidahossain@gmail.com
 - May Yassin @mayyassin maymay27205@gmail.com
@@ -82,5 +81,6 @@
 - Shorook Saleh @shorookMS shorook.m.saleh@gmail.com
 - Khalid Mohamed @khm56 kalmohammed56@gmail.com (Mr. Wanna leave Early)
 - Mariam Ali @grumpy13
+- Mohammad AlSayegh @SENKWATE senkwate@hotmail.com
 
 
