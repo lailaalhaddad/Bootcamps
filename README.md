@@ -86,4 +86,4 @@
 
 ## Fish Hackathon
 
-**stduents:**
+**Students:**
