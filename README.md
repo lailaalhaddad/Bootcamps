@@ -85,3 +85,5 @@
 - Mohammad AlSayegh @SENKWATE senkwate@hotmail.com
 
 ## Fish Hackathon
+
+**Instructors:**
