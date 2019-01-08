@@ -89,5 +89,9 @@
 **Instructors:**
 
 - Aziz Alsaffar @octowl aziz@joincoded.com
+- Laila AbdulRaheem § 令来 @lailz laila.k@joincoded.com
+- Hamsa Makia @DarthHamsa hamsa@joincoded.com
+- Laila Buabbas @lailalelouch
+- Fawaz Almutairi @smokeme fawaz@joincoded.com
 
 **Students:**
