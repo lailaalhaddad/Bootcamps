@@ -108,3 +108,5 @@
 - Laila AlKandery § 来来 @lailz laila.k@joincoded.com (Lailz ElWailz)
 
 **Students:**
+
+- Abdulaziz Alhashem @A_Alhashem q8_ash@live.com
