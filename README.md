@@ -110,4 +110,6 @@
 **Students:**
 
 - Bader Alkazemi @baderfalkazemi bader.alkazemi@optimizekw.com
+- Aisha Ben Naser @aishabn abn.226@gmail.com
 - Nouf Almutairi @nalmutairi
+
