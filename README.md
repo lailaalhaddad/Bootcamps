@@ -110,3 +110,4 @@
 **Students:**
 
 - Bader Alkazemi @baderfalkazemi bader.alkazemi@optimizekw.com
+- Nouf Almutairi @nalmutairi
