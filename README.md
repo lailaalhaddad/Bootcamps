@@ -109,11 +109,17 @@
 
 **Students:**
 
-<<<<<<< HEAD
+
+
+Farah Malallah @FarahhM
+
+
+
 -Latefa Alhassan @EngLatefa latefaalhassan@hotmail.com
-=======
+
 - Bader Alkazemi @baderfalkazemi bader.alkazemi@optimizekw.com
+
 - Aisha Ben Naser @aishabn abn.226@gmail.com
 - Nouf Almutairi @nalmutairi
 
->>>>>>> 94950d86b64da3a9c79a5d5c7dbb57e38f415386
+
