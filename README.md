@@ -111,3 +111,12 @@
 
 - Nouf Almutairi @nalmutairi
 - Yousef Alsaeid @yousefpy
+- Abdulaziz Alhashem @A_Alhashem q8_ash@live.com
+- Latefa Alhassan @EngLatefa latefaalhassan@hotmail.com
+- Farah Malallah @FarahhM
+- Latefa Alhassan @EngLatefa latefaalhassan@hotmail.com
+- Bader Alkazemi @baderfalkazemi bader.alkazemi@optimizekw.com
+- Aisha Ben Naser @aishabn abn.226@gmail.com
+- Nouf Almutairi @nalmutairi
+
+
