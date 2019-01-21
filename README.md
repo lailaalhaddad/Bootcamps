@@ -100,4 +100,4 @@
 - Abdulmuhsen Ali @thezigzagtree divinenibru@gmail.com
 - Mariam AlSubaiei @MariamAlSubaiei mas992@hotmail.com
 
-## Fall 2018
+## Full Stack - Fall 2018
