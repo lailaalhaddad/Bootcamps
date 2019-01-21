@@ -109,5 +109,14 @@
 
 **Students:**
 
+- Arwa Alotaibi @arwaalotaibi
 - Nouf Almutairi @nalmutairi
-- arwa alotaibi @arwaalotaibi
+- Alaa Alsubaie @alaa-alsubaie
+- Yousef Alsaeid @yousefpy
+- Fatemah AlRamzi @FatmaIR
+- Abdulaziz Alhashem @A_Alhashem q8_ash@live.com
+- Farah Malallah @FarahhM
+- Latefa Alhassan @EngLatefa latefaalhassan@hotmail.com
+- Bader Alkazemi @baderfalkazemi bader.alkazemi@optimizekw.com
+- Aisha Ben Naser @aishabn abn.226@gmail.com
+
