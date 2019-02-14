@@ -123,6 +123,7 @@
 ## Generation Z - 2019
 
 **Instructors:**
+- Mshary AlSharekh @darkwight mshary@joincoded.com
 
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
