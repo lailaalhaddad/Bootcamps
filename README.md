@@ -123,5 +123,6 @@
 ## Generation Z - 2019
 
 **Instructors:**
+- Mshary AlSharekh @darkwight mshary@joincoded.com
 
 **Students:**
