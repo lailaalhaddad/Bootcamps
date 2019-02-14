@@ -124,4 +124,6 @@
 
 **Instructors:**
 
+- Aziz Alsaffar @octowl aziz@joincoded.com
+
 **Students:**
