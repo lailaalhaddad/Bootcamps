@@ -124,8 +124,9 @@
 
 **Instructors:**
 - Mshary AlSharekh @darkwight mshary@joincoded.com
-
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students:**
+
+- Jumanah AlMutawa @anamuj
 - Mohammed Algharaballi @mogee10 mohammad.algharaballi@zain.com
