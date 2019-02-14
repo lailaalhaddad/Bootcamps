@@ -128,3 +128,4 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students:**
+-Thuraya AlAteeqi @talateeqi
