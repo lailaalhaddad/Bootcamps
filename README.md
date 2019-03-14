@@ -159,4 +159,6 @@ Nour not Noora. :)
 - Nadya Abdulrahman @Nadyaak
 - Nujood Almadi @nujoodalmadi
 - Hamad Almogbl @halmogbl hamad.almogbl@gmail.com
+- Ayman Alshanqiti | @AySh9014 | ayman.alshanqiti@gmail.com
+
 
