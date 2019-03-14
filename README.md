@@ -140,6 +140,8 @@
 
 **Instructors:**
 
+- Aziz Alsaffar @octowl aziz@joincoded.com
+- Hamza Makia @DarthHamza hamza@joincoded.com
 - Hussein Almutawa @hralmutawa hussein@joincoded.com
 
 **Students:**
