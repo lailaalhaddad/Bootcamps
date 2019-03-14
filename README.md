@@ -137,7 +137,7 @@
 - Thuraya AlAteeqi @talateeqi
 
 ## Tuwaiq - 2019
-- Abdullah Abanmi
+
 
 **Instructors:**
 
@@ -148,8 +148,10 @@
 
 **Students:**
 
+
 - Rasha Mohammed Alharthi @RashaAlorabi rasha.alorabi@gmail.com
 -Anas Alsahli @anassu1400 anassu1400@gmail.com
 - Fahad Bader Al Mutairi
+- Abdullah Abanmi
 
 
