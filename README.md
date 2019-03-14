@@ -137,6 +137,8 @@
 - Thuraya AlAteeqi @talateeqi
 
 ## Tuwaiq - 2019
+
+- Hamad Almogbl @halmogbl hamad.almogbl@gmail.com
 - Abdullah Abanmi
 
 **Instructors:**
@@ -146,6 +148,4 @@
 - Hamza Makia @DarthHamza hamza@joincoded.com
 - Hussein Almutawa @hralmutawa hussein@joincoded.com
 
-
 **Students:**
-
