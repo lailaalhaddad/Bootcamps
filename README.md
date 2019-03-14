@@ -18,6 +18,7 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 - Hamsa Makia @DarthHamsa hamsa@joincoded.com
 - Mshary AlSharekh @sentient64 m.alsharekh94@gmail.com
+- Khalid Al Mohammed @khm56 kalmohammed56@gmail.com
 
 **Students:**
 
