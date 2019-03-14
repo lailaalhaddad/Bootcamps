@@ -147,7 +147,6 @@
 
 **Students:**
 
-
 - Fahad Bader AlMutairi @FahadAlMutairi5 almteref@gmail.com
 - Fatima Almashi @FatimaAlmashi f.almashi@windowslive.com
 - Modi Alotaibi @Modi91 alotaibimood@gmail.com
@@ -161,5 +160,4 @@
 - Nujood Almadi @nujoodalmadi
 - Hamad Almogbl @halmogbl hamad.almogbl@gmail.com
 - Ayman Alshanqiti | @AySh9014 | ayman.alshanqiti@gmail.com
-
-
+- Sultan alshahrani @sultan000 sultanalshahrani40@gmail.com
