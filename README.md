@@ -163,4 +163,5 @@ Nour not Noora. :)
 - Maram Kamil @Memexp maram.kamil@gmail.com
 - Nadya Abdulrahman @Nadyaak
 - Nujood Almadi @nujoodalmadi
+- Ayman Alshanqiti | @AySh9014 | ayman.alshanqiti@gmail.com
 
