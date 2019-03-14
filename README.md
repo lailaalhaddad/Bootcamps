@@ -148,6 +148,7 @@
 
 **Students:**
 
+
 - Fatima Almashi @FatimaAlmashi f.almashi@windowslive.com
 - Modi Alotaibi @Modi91 alotaibimood@gmail.com
 Nour not Noora. :)
@@ -161,3 +162,5 @@ Nour not Noora. :)
 - Anas Alsahli @anassu1400 anassu1400@gmail.com
 - Maram Kamil @Memexp maram.kamil@gmail.com
 - Nadya Abdulrahman @Nadyaak
+- Nujood Almadi @nujoodalmadi
+
