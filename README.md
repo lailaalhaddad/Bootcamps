@@ -126,6 +126,7 @@
 
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 - Aziz Alsaffar @octowl aziz@joincoded.com
+- Hussein Almutawa @hralmutawa hussein@joincoded.com
 
 **Students:**
 
