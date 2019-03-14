@@ -140,4 +140,7 @@
 
 **Instructors:**
 
+- Aziz Alsaffar @octowl aziz@joincoded.com
+- Hamza Makia @DarthHamza hamza@joincoded.com
+
 **Students:**
