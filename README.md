@@ -137,6 +137,7 @@
 - Thuraya AlAteeqi @talateeqi
 
 ## Tuwaiq - 2019
+- Abdullah Abanmi
 
 **Instructors:**
 
@@ -148,3 +149,4 @@
 **Students:**
 
 -Anas Alsahli @anassu1400 anassu1400@gmail.com
+
