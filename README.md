@@ -138,6 +138,6 @@
 
 ## Tuwaiq - 2019
 
-**Intructors:**
+**Instructors:**
 
 **Students:**
