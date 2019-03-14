@@ -138,7 +138,6 @@
 
 ## Tuwaiq - 2019
 
-
 **Instructors:**
 
 - Khalid Al Mohammed @khm56 kalmohammed56@gmail.com
@@ -149,18 +148,18 @@
 **Students:**
 
 - Mohammed Alotaibi @MohammedMG1 imohammed.mg@gmail.com
+- Fahad Bader AlMutairi @FahadAlMutairi5 almteref@gmail.com
 - Fatima Almashi @FatimaAlmashi f.almashi@windowslive.com
 - Modi Alotaibi @Modi91 alotaibimood@gmail.com
-Nour not Noora. :)
+- Nour not Noora. :)
 - sitah Abdulatif Alsaleem @sitahlatif sitah27@hotmail.com
-- Fahad Bader Al Mutairi
 - Abdullah Abanmi
 - Anas Alsahli @anassu1400 anassu1400@gmail.com
 - Rasha Mohammed Alharthi @RashaAlorabi rasha.alorabi@gmail.com
-- Fahad Bader Al Mutairi
-- Abdullah Abanmi
-- Anas Alsahli @anassu1400 anassu1400@gmail.com
 - Maram Kamil @Memexp maram.kamil@gmail.com
 - Nadya Abdulrahman @Nadyaak
 - Nujood Almadi @nujoodalmadi
+- Hamad Almogbl @halmogbl hamad.almogbl@gmail.com
+- Ayman Alshanqiti | @AySh9014 | ayman.alshanqiti@gmail.com
+
 
