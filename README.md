@@ -138,7 +138,30 @@
 
 ## Tuwaiq - 2019
 
+
 **Instructors:**
 
+- Khalid Al Mohammed @khm56 kalmohammed56@gmail.com
+- Aziz Alsaffar @octowl aziz@joincoded.com
+- Hamza Makia @DarthHamza hamza@joincoded.com
+- Hussein Almutawa @hralmutawa hussein@joincoded.com
+
 **Students:**
+
+
+
+
+
+
 Nour not Noora. :)
+- sitah Abdulatif Alsaleem @sitahlatif sitah27@hotmail.com
+- Fahad Bader Al Mutairi
+- Abdullah Abanmi
+- Anas Alsahli @anassu1400 anassu1400@gmail.com
+- Rasha Mohammed Alharthi @RashaAlorabi rasha.alorabi@gmail.com
+- Fahad Bader Al Mutairi
+- Abdullah Abanmi
+- Anas Alsahli @anassu1400 anassu1400@gmail.com
+- Maram Kamil @Memexp maram.kamil@gmail.com
+- Nadya Abdulrahman @Nadyaak
+
