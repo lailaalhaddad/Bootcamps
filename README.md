@@ -147,8 +147,8 @@
 
 **Students:**
 
-- Mohammed Alotaibi @MohammedMG1 imohammed.mg@gmail.com
 - Fahad Bader AlMutairi @FahadAlMutairi5 almteref@gmail.com
+- Mohammed Alotaibi @MohammedMG1 imohammed.mg@gmail.com
 - Fatima Almashi @FatimaAlmashi f.almashi@windowslive.com
 - Modi Alotaibi @Modi91 alotaibimood@gmail.com
 - Nour not Noora. :)
@@ -161,5 +161,4 @@
 - Nujood Almadi @nujoodalmadi
 - Hamad Almogbl @halmogbl hamad.almogbl@gmail.com
 - Ayman Alshanqiti | @AySh9014 | ayman.alshanqiti@gmail.com
-
-
+- Sultan alshahrani @sultan000 sultanalshahrani40@gmail.com
