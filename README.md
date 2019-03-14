@@ -123,6 +123,7 @@
 ## Generation Z - 2019
 
 **Instructors:**
+
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
@@ -135,3 +136,4 @@
 - Laila almelhem @lailam lailaalmelhem@zain.com
 - Thuraya AlAteeqi @talateeqi
 
+## Tuwaiq - 2019
