@@ -138,7 +138,6 @@
 
 ## Tuwaiq - 2019
 
-- Abdullah Abanmi
 
 **Instructors:**
 
@@ -149,4 +148,8 @@
 
 **Students:**
 
+- Fahad Bader Al Mutairi
+- Abdullah Abanmi
+- Anas Alsahli @anassu1400 anassu1400@gmail.com
 - Maram Kamil @Memexp maram.kamil@gmail.com
+
