@@ -148,6 +148,10 @@
 
 **Students:**
 
+
+- Fatima Almashi @FatimaAlmashi f.almashi@windowslive.com
+- Modi Alotaibi @Modi91 alotaibimood@gmail.com
+Nour not Noora. :)
 - sitah Abdulatif Alsaleem @sitahlatif sitah27@hotmail.com
 - Fahad Bader Al Mutairi
 - Abdullah Abanmi
