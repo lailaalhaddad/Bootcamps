@@ -179,6 +179,7 @@
 
 - Noura Alrabah @nalrabah
 - Rashed Alajmi @nomadfool
-- Nour AlKandari @NourAlkandari
+- Marwah Alenezi @marooy m.o.kh.alenzii@gmail.com
 - Yousef AlQatami @laqatami
+- Nour AlKandari @NourAlkandari
 - Sarah Aman @sarah-am
