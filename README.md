@@ -170,4 +170,6 @@
 
 **Instructors**
 
+- Laila Buabbas @lailalelouch
+
 **Students**
