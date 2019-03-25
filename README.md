@@ -170,6 +170,7 @@
 
 **Instructors**
 
+- Mshary AlSharekh @darkwight mshary@joincoded.com
 - Laila Buabbas @lailalelouch
 
 **Students**
