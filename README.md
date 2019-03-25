@@ -168,6 +168,6 @@
 
 ## Full Stack - Spring 2019
 
-**Intructors**
+**Instructors**
 
 **Students**
