@@ -177,9 +177,9 @@
 
 **Students**
 
-
-
--Yousef AlQatami @laqatami
+- Nour AlKandari @NourAlkandari
+- Yousef AlQatami @laqatami
 - Sarah Aman @sarah-am
 - Rashed Alajmi @nomadfool
+
 
