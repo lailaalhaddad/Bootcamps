@@ -176,3 +176,5 @@
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 
 **Students**
+
+- Nour AlKandari @NourAlkandari
