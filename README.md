@@ -176,3 +176,5 @@
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 
 **Students**
+
+- Rashed Alajmi @nomadfool
