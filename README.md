@@ -177,6 +177,6 @@
 
 **Students**
 
-
 - Sarah Aman @sarah-am
 - Rashed Alajmi @nomadfool
+  -Nabil Fares @zeinay
