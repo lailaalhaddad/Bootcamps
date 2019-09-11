@@ -201,5 +201,6 @@
 **Students**
 
 -Fay Al-Zouman @fayalzouman
-- Sulaiman AlQanaei @salqanaei
 
+- Sulaiman AlQanaei @salqanaei
+- Abdulaziz Bukhamseen @abdulaziz_bu50
