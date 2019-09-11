@@ -33,6 +33,7 @@
 - Laila AbdulRaheem § 令来 @lailz lailaabdulraheem@gmail.com
 - Reem AlSharqawi @ReemS91 sharqaswi.reem@gmail.com
 - Alyaa AlAteyah @Alyaa86
+- Fatemah Al-Hajji @falhajji
 
 ## Summer 2018
 
@@ -201,5 +202,5 @@
 **Students**
 
 -Fay Al-Zouman @fayalzouman
-- Sulaiman AlQanaei @salqanaei
 
+- Sulaiman AlQanaei @salqanaei
