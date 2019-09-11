@@ -177,10 +177,9 @@
 
 **Students**
 
-
 - Sarah Aman @sarah-am
 - Rashed Alajmi @nomadfool
--Nabil Fares @zeinay
+- Nabil Fares @zeinay
 - Noura Alrabah @nalrabah
 - Rashed Alajmi @nomadfool
 - Marwah Alenezi @marooy m.o.kh.alenzii@gmail.com
@@ -188,4 +187,3 @@
 - Nour AlKandari @NourAlkandari
 - Sarah Aman @sarah-am
 - Rahamadulla @rahamadulla45 rshafayath@gmail.com
-
