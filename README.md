@@ -200,4 +200,15 @@
 
 **Students**
 
-Bader AlDuaij @ MrBaderNasser@gmail.com
+
+- Bader AlDuaij @ MrBaderNasser@gmail.com
+- Sulaiman AlQanaei @salqanaei
+- Fay Al-Zouman @fayalzouman
+- Nawaf B ALrifai @nbalrifai
+- Aisha AlShaiji @aishans
+- Ahmad Helal @helaahma
+- Saoud Alfares @sfares85
+- Fatemah Al-Hajji @falhajji
+- Abdulaziz Bukhamseen @abdulaziz_bu50
+- Abdulghaphor Hajjieh @abdulghaphor
+
