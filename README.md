@@ -192,12 +192,10 @@
 
 **Instructors**
 
-
 - Hussein Almutawa - @HUSSinBOOTS
 - Laila Buabbas @lailalelouch
 - Laila AlKandery § 来来 @lailz laila.k@joincoded.com (Lailz ElWailz)
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 - Khalid Mohamed @khm56
-
 
 **Students**
