@@ -191,6 +191,7 @@
 ## Full Stack - Summer 2019
 
 **Instructors**
+
 Hussein Almutawa - @HUSSinBOOTS
 
 **Students**
