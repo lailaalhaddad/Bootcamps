@@ -34,6 +34,7 @@
 - Reem AlSharqawi @ReemS91 sharqaswi.reem@gmail.com
 - Alyaa AlAteyah @Alyaa86
 
+
 ## Summer 2018
 
 **Instructors:**
@@ -200,13 +201,16 @@
 
 **Students**
 
+
+-Fay Al-Zouman @fayalzouman
+- Sulaiman AlQanaei @salqanaei
 - Fay Al-Zouman @fayalzouman
 - Sulaiman AlQanaei @salqanaei
-
 - Aisha AlShaiji @aishans
-
--Ahmad Helal @helaahma
+- Fatemah Al-Hajji @falhajji
+- Ahmad Helal @helaahma
 - Saoud Alfares @sfares85
 - Abdulaziz Bukhamseen @abdulaziz_bu50
+
 
 
