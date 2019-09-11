@@ -200,5 +200,10 @@
 
 **Students**
 
+- Fay Al-Zouman @fayalzouman
 - Sulaiman AlQanaei @salqanaei
-- Nawaf B ALrifai (Fay i beat you to it :p)
+- Nawaf B ALrifai
+- Aisha AlShaiji @aishans
+-Ahmad Helal @helaahma
+- Saoud Alfares @sfares85
+- Abdulaziz Bukhamseen @abdulaziz_bu50
