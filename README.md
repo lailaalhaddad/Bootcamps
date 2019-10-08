@@ -227,3 +227,10 @@
 **Students**
 
 - Hussain AlHaddad @SomEOnESmith h.ali.alhaddad@hotmail.com
+- Abdullah Alhasan - @aalhsn a.a.alhasan95@gmail.com
+- Yousef Hamadah @Yousef115 yousef.hamadah@gmail.com
+- Youssef Alothman @yalothman97
+- Ahmad Qmairah @AhmadQmairah
+- NaserAldeen Naser @NaserAldeen
+- Shereen AbdelQader @ shereengaa@gmail.com
+
