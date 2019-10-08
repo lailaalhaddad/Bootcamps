@@ -215,3 +215,5 @@
 - Aziza Buabbas @AzizaBuabbas
 - Bader AlDuaij @ MrBaderNasser@gmail.com
 - Abdulghaphor Hajjieh @abdulghaphor (ew)
+
+## Fresh Grad - Summer 2019
