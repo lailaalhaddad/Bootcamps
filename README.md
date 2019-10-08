@@ -217,3 +217,7 @@
 - Abdulghaphor Hajjieh @abdulghaphor (ew)
 
 ## Fresh Grad - Summer 2019
+
+**Instructors**
+
+**Students**
