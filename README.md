@@ -228,9 +228,8 @@
 
 - Ahmad Qmairah @AhmadQmairah
 - NaserAldeen Naser @ nasser1234517@hotmail.com
-  -Mariam Haitham - @Mariam-Haitham
+- Mariam Haitham - @Mariam-Haitham
 - Hessah AlHamadi @Hessah95 hessah.alhamadi.95@gmail.com
-- NaserAldeen Naser @ nasser1234517@hotmail.com
 - Wadha Alajmi @wadha-ra@hotmail.com
 - Anfal Hussain @AnfalHussain - anfalae95@gmail.com
 - Bashayer Nouri @BashayerNouri
@@ -240,10 +239,8 @@
 - Abdullah Alhasan - @aalhsn a.a.alhasan95@gmail.com
 - Yousef Hamadah @Yousef115 yousef.hamadah@gmail.com
 - Youssef Alothman @yalothman97
-- Ahmad Qmairah @AhmadQmairah
 - Shereen AbdelQader @ shereengaa@gmail.com
 - Mohammad Al Thunayan @malthunayan malthunayan4@gmail.com
 - Sarah Abu Salem sweerna1@gmail.com
 - Manuel Maged @ManuelEgypt manuel126519@gmail.com
 - Farah AlOmar @farahalomar farahjalomar@gmail.com
-
