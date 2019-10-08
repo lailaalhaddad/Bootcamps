@@ -226,8 +226,8 @@
 
 **Students**
 
-- Ahmad Qmairah @AhmadQmairah
 - NaserAldeen Naser @ nasser1234517@hotmail.com
+- Ahmad Qmairah @AhmadQmairah
 - Mariam Haitham - @Mariam-Haitham
 - Hessah AlHamadi @Hessah95 hessah.alhamadi.95@gmail.com
 - Wadha Alajmi @wadha-ra@hotmail.com
@@ -244,3 +244,5 @@
 - Sarah Abu Salem sweerna1@gmail.com
 - Manuel Maged @ManuelEgypt manuel126519@gmail.com
 - Farah AlOmar @farahalomar farahjalomar@gmail.com
+- Dawood AlOthman @dawoodalo d.3thmani@gmail.com
+
