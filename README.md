@@ -224,5 +224,6 @@
 - Khalid Mohamed @khm56 khalid@joincoded.com
 - Hussein Almutawa - @HUSSinBOOTS
 
-
 **Students**
+
+- Hussain AlHaddad @SomEOnESmith h.ali.alhaddad@hotmail.com
