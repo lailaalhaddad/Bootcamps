@@ -224,5 +224,6 @@
 - Khalid Mohamed @khm56 khalid@joincoded.com
 - Hussein Almutawa - @HUSSinBOOTS
 
-
 **Students**
+
+- Manuel Maged @ManuelEgypt manuel126519@gmail.com
