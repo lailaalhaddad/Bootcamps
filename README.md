@@ -226,5 +226,4 @@
 
 **Students**
 
-- NaserAldeen Naser @ nasser1234517@hotmail.com
 - Farah AlOmar @farahalomar farahjalomar@gmail.com
