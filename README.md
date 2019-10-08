@@ -227,8 +227,9 @@
 **Students**
 
 
-- NaserAldeen Naser @NaserAldeen
 - Hessah AlHamadi @Hessah95 hessah.alhamadi.95@gmail.com
+- NaserAldeen Naser @ nasser1234517@hotmail.com
+- Wadha Alajmi @wadha-ra@hotmail.com
 - Anfal Hussain @AnfalHussain - anfalae95@gmail.com
 - Bashayer Nouri @BashayerNouri
 - Alyaa Al-Ostad @AlyaaAlostad
