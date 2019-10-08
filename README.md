@@ -220,4 +220,6 @@
 
 **Instructors**
 
+- Khalid Mohammed @khm56 khalid@joincoded.com
+
 **Students**
