@@ -227,6 +227,7 @@
 **Students**
 
 
+- Bashayer Nouri @BashayerNouri
 - Alyaa Al-Ostad @AlyaaAlostad
 - Amnah Abdulraheem @ayjayy7 eng.amonijoni@gmail.com
 - Hussain AlHaddad @SomEOnESmith h.ali.alhaddad@hotmail.com
