@@ -218,6 +218,6 @@
 
 ## Fresh Grad - Summer 2019
 
-**Intrucstors**
+**Instructors**
 
 **Students**
