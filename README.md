@@ -220,6 +220,9 @@
 
 **Instructors**
 
-- Khalid Mohammed @khm56 khalid@joincoded.com
+- Aziz Alsaffar @octowl aziz@joincoded.com
+- Khalid Mohamed @khm56 khalid@joincoded.com
+- Hussein Almutawa - @HUSSinBOOTS
+
 
 **Students**
