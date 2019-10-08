@@ -226,11 +226,10 @@
 
 **Students**
 
-
-
 - Ahmad Qmairah @AhmadQmairah
 - NaserAldeen Naser @ nasser1234517@hotmail.com
   -Mariam Haitham - @Mariam-Haitham
+- Hessah AlHamadi @Hessah95 hessah.alhamadi.95@gmail.com
 - NaserAldeen Naser @ nasser1234517@hotmail.com
 - Wadha Alajmi @wadha-ra@hotmail.com
 - Anfal Hussain @AnfalHussain - anfalae95@gmail.com
@@ -242,7 +241,6 @@
 - Yousef Hamadah @Yousef115 yousef.hamadah@gmail.com
 - Youssef Alothman @yalothman97
 - Ahmad Qmairah @AhmadQmairah
-- NaserAldeen Naser @NaserAldeen
 - Shereen AbdelQader @ shereengaa@gmail.com
 - Mohammad Al Thunayan @malthunayan malthunayan4@gmail.com
 - Sarah Abu Salem sweerna1@gmail.com
