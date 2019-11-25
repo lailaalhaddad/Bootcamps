@@ -249,6 +249,6 @@
 
 ## Full Stack - Fall 2019
 
-**Intructoris**
+**Instructors**
 
 **Students**
