@@ -255,3 +255,5 @@
 - Laila AlKandery § 来来 @lailz laila.a@joincoded.com (Lailz ElWailz)
 
 **Students**
+
+- Majed
