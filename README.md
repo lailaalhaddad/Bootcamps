@@ -256,6 +256,6 @@
 
 **Students**
 - Majed @kurohage
-- Barak	Almeshaan @balmeshaan balmeshaan@gmail.com 
+- Barak Almeshaan @balmeshaan balmeshaan@gmail.com
+- Nancy Elsharkawi @nancyelsh elsharkawinancy@gmail.com
 - Hussain Alkazemi @Halkazemi93
-
