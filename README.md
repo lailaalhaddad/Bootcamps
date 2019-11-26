@@ -89,7 +89,7 @@
 **Instructors:**
 
 - Aziz Alsaffar @octowl aziz@joincoded.com
-- Laila AbdulRaheem § 令来 @lailz laila.k@joincoded.com
+- Laila AbdulRaheem § 令来 @lailz laila.a@joincoded.com
 - Hamsa Makia @DarthHamsa hamsa@joincoded.com
 - Laila Buabbas @lailalelouch
 - Fawaz Almutairi @smokeme fawaz@joincoded.com
@@ -105,7 +105,7 @@
 **Instructors:**
 
 - Aziz Alsaffar @octowl aziz@joincoded.com
-- Laila AlKandery § 来来 @lailz laila.k@joincoded.com (Lailz ElWailz)
+- Laila AlKandery § 来来 @lailz laila.a@joincoded.com (Lailz ElWailz)
 
 **Students:**
 
@@ -172,7 +172,7 @@
 
 - Laila Buabbas @lailalelouch
 - Hamza Makia @DarthHamza hamza@joincoded.com
-- Laila AlKandery § 来来 @lailz laila.k@joincoded.com (Lailz ElWailz)
+- Laila AlKandery § 来来 @lailz laila.a@joincoded.com (Lailz ElWailz)
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 
 **Students**
@@ -194,7 +194,7 @@
 
 - Hussein Almutawa - @HUSSinBOOTS
 - Laila Buabbas @lailalelouch
-- Laila AlKandery § 来来 @lailz laila.k@joincoded.com (Lailz ElWailz)
+- Laila AlKandery § 来来 @lailz laila.a@joincoded.com (Lailz ElWailz)
 - Mshary AlSharekh @darkwight mshary@joincoded.com
 - Khalid Mohamed @khm56
 
@@ -252,6 +252,10 @@
 **Instructors**
 
 - Mshary AlSharekh @TheMshary mshary@joincoded.com
-- Laila AlKandery § 来来 @lailz laila.k@joincoded.com (Lailz ElWailz)
+- Laila AlKandery § 来来 @lailz laila.a@joincoded.com (Lailz ElWailz)
 
 **Students**
+- Majed @kurohage
+- Barak	Almeshaan @balmeshaan balmeshaan@gmail.com 
+- Hussain Alkazemi @Halkazemi93
+
