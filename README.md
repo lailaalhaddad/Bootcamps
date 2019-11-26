@@ -255,7 +255,12 @@
 - Laila AlKandery § 来来 @lailz laila.a@joincoded.com (Lailz ElWailz)
 
 **Students**
-- Majed @kurohage
-- Barak	Almeshaan @balmeshaan balmeshaan@gmail.com 
+
+- Barak Almeshaan @balmeshaan balmeshaan@gmail.com
+- Hesham Al Nukhailan @HeshamALN halnukhailan@gmail.com
 - Hussain Alkazemi @Halkazemi93
 - Fay Alawadhi @feyfey27 fay_awadhi@hotmail.com
+- Majed @kurohage
+- Nancy Elsharkawi @nancyelsh elsharkawinancy@gmail.com
+- Sarah @S-Bader s.r.albader@gmail.com
+
