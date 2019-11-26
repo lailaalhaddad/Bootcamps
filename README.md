@@ -256,5 +256,5 @@
 
 **Students**
 
-- Majed
+- Majed @kurohage
 - Barak	Almeshaan @balmeshaan balmeshaan@gmail.com 
