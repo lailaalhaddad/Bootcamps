@@ -271,6 +271,6 @@
 **Instructors**
 
 - Laila AlKandery § @lailz laila.a@joincoded.com (Lailz ElWailz)
-- Laila Bee - @lailalelouch
+- Laila Bee - @lailalelouch laila.b@joincoded.com
 
 **Students**
