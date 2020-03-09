@@ -270,6 +270,7 @@
 
 **Instructors**
 
+- Laila AlKandery § @lailz laila.a@joincoded.com (Lailz ElWailz)
 - Laila Bee - @lailalelouch
 
 **Students**
