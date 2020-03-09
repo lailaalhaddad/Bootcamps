@@ -270,4 +270,6 @@
 
 **Instructors**
 
+- Laila Bee - @lailalelouch
+
 **Students**
