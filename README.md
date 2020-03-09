@@ -274,4 +274,11 @@
 - Laila Bee - @lailalelouch laila.b@joincoded.com
 
 **Students**
-Mohammad Buhamad - @mrbuhamad mr.buhamad@hotmail.com
+
+-Mohammad Buhamad - @mrbuhamad mr.buhamad@hotmail.com
+- Sarah AlAshban @sasa17 s.f.alashban@gmail.com
+- Lubeina Ali @lubeina alubeina@gmail.com
+- Yousef Alkhalifah @Yousefbnk y.alkhalifah1@gmail.com
+
+
+
