@@ -331,3 +331,8 @@
 
 - Ahmad Sa'adeh @Ahmad-Saadeh saadeh96.ahmad@gmail.com
 
+
+* Essam Abuissa @essamabuissa essamabuissa@hotmail.com
+
+* Bachira Kadour Alainieh @Bachira95 ainyabasheera@gmail.com
+
