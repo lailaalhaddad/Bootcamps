@@ -281,4 +281,8 @@
 - Manal Alkandari @manale manal_alkandri@hotmail.com
 - Mohammad Buhamad - @mrbuhamad mr.buhamad@hotmail.com
 
-## Live - Jordan 2020
+## Live - Jordan 2020 (The Corona Cohort)
+
+**Instructors**
+
+**Students**
