@@ -293,3 +293,4 @@
 **Students**
 
 -Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
+- Yazan Al-Husamia @yazan.alhusamia yazan.alhusamia@outlook.com
