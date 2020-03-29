@@ -292,12 +292,10 @@
 
 **Students**
 
-
--Ahmed AlSalman @ahmedalsalman ahmedealsalman@gmail.com
+- Ahmed AlSalman @ahmedalsalman ahmedealsalman@gmail.com
 
 -Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
 
 - Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
 
 - Mohammad Rahmeh @moe9195 moerahmeh95@hotmail.com
-
