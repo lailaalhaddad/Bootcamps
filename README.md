@@ -291,3 +291,5 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students**
+
+-Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
