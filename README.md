@@ -287,5 +287,6 @@
 
 - Hamza Makia @DarthHamza hamza@joincoded.com
 - Fawaz Almutairi @smokeme fawaz@joincoded.com
+- Mshary AlSharekh @TheMshary mshary@joincoded.com
 
 **Students**
