@@ -314,4 +314,9 @@
 
 * Olga Hijazin @Olga hijazin.olga@gmail.com
 
+- Anna Annaliyeva @Anna annaguzelya@hotmail.com
+
+- Osama Sider @osamaMKS osamamksider@hotmail.com 
+
 * Essam Abuissa @essamabuissa essamabuissa@hotmail.com
+
