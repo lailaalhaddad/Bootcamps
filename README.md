@@ -291,3 +291,5 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students**
+
+- Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
