@@ -292,8 +292,7 @@
 
 **Students**
 
-
-
-
 -Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
+
 - Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
+  -Tala Agha @Tala-Agha tala.agha996@gmail.com
