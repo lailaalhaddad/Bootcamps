@@ -292,6 +292,17 @@
 
 **Students**
 
+
+-Ahmed AlSalman @ahmedalsalman ahmedealsalman@gmail.com
+
 -Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
 
 - Hani Neiroukh @Sparksys hanineiroukh@gmail.com
+
+- Sara Taiseer @SaraTaiseer sarataiseer97@gmail.com
+
+- Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
+
+- Mohammad Rahmeh @moe9195 moerahmeh95@hotmail.com
+
+- Osama Sider @osamaMKS osamamksider@hotmail.com 
