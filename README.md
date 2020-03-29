@@ -292,5 +292,48 @@
 
 **Students**
 
+
+- Ahmed AlSalman @ahmedalsalman ahmedealsalman@gmail.com
+
 -Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
+
+- Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
+
+- Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
+
+- Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
+
+- Tala Agha @Tala-Agha tala.agha996@gmail.com
+
+- Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
+
+- Ahmed AlSalman @ahmedalsalman ahmedealsalman@gmail.com
+
+- Hammam Mohsen Besaiso @hammam1311 h.besaiso95@gmail.com
+
+- Hani Neiroukh @Sparksys hanineiroukh@gmail.com
+
+- Sara Taiseer @SaraTaiseer sarataiseer97@gmail.com
+
+- Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
+
+- Mohammad Rahmeh @moe9195 moerahmeh95@hotmail.com
+
+- Osama Sider @osamaMKS osamamksider@hotmail.com 
+
+- Olga Hijazin @Olga hijazin.olga@gmail.com
+
+- Anna Annaliyeva @Anna annaguzelya@hotmail.com
+
+- Osama Sider @osamaMKS osamamksider@hotmail.com 
+
+- Essam Abuissa @essamabuissa essamabuissa@hotmail.com
+
+- Ahmad Sa'adeh @Ahmad-Saadeh saadeh96.ahmad@gmail.com
+
+* Essam Abuissa @essamabuissa essamabuissa@hotmail.com
+
+* Bachira Kadour Alainieh @Bachira95 ainyabasheera@gmail.com
+
 - Yazan Al-Husamia @yazan.alhusamia yazan.alhusamia@outlook.com
+
