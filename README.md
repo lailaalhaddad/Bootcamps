@@ -312,6 +312,6 @@
 
 ## Full-Stack - Summer 2020
 
-**Instructos**
+**Instructors**
 
 **Students**
