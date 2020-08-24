@@ -316,5 +316,6 @@
 
 - Mshary AlSharekh @TheMshary mshary@joincoded.com
 - Laila AlKandery - @lailz laila.a@joincoded.com
+- Ali Alduaij - @AliAlduaj aliaalduaij@gmail.com
 
 **Students**
