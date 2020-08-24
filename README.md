@@ -322,6 +322,9 @@
 **Students**
 
 
+- Fatma AlOtaibi - @fatmaalotaibi f.n.alotaibi85@hotmail.com
+
+
 - Alia Al Abduljalil - @alia-alabduljalil aliaanmar@gmail.com
 - Fatma AlOlayan - @fatma-alolayan temaalolayan@hotmail.com
 - Assad Assad - @Assadribhi assadribhi@gmail.com
@@ -334,6 +337,7 @@
 - Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
 - Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
 - Shaikha Alammari @shaikhalammari shaikha@alammari.com
+
 
 
 
