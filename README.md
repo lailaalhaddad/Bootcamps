@@ -317,7 +317,21 @@
 - Mshary AlSharekh @TheMshary mshary@joincoded.com
 - Laila AlKandery - @lailz laila.a@joincoded.com
 - Ali Alduaij - @AliAlduaj aliaalduaij@gmail.com
+- Bader Ealyyah - @bader_alealyyah bader.al.ealyyah@gmail.com
 
 **Students**
 
 - Eman AL-Kandari @EmanAALK emanalkandarii@gmail.com
+- Fatma AlOtaibi - @fatmaalotaibi f.n.alotaibi85@hotmail.com
+- Alia Al Abduljalil - @alia-alabduljalil aliaanmar@gmail.com
+- Fatma AlOlayan - @fatma-alolayan temaalolayan@hotmail.com
+- Assad Assad - @Assadribhi assadribhi@gmail.com
+- Zahraa BaharAluloom @ZhraaBaharAluloom zahraambaharaluloom@gmail.com
+- Eman Alolayan - @Alo-faith alo.faith@gmail.com
+- Dalal AlRasheedi @Dalkwt94 ce_dalalalrasheedi@hotmail.com
+- Ali Karam - @airb24 aliibrahim4793@gmail.com
+- Hassan Alwayel @Bowayel hsn.Alwayel@gmail.com
+- Yousif AlOzairi - @yalozairi yalozairii@gmail.com
+- Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
+- Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
+- Shaikha Alammari @shaikhalammari shaikha@alammari.com
