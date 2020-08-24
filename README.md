@@ -320,6 +320,7 @@
 
 **Students**
 
+- Assad Assad - @Assadribhi assadribhi@gmail.com
 - Zahraa BaharAluloom @ZhraaBaharAluloom zahraambaharaluloom@gmail.com
 - Eman Alolayan - @Alo-faith alo.faith@gmail.com
 - Dalal AlRasheedi @Dalkwt94 ce_dalalalrasheedi@hotmail.com
