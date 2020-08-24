@@ -321,7 +321,11 @@
 **Students**
 
 
+
 - Yousif AlOzairi - @yalozairi yalozairii@gmail.com
+-Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
+- Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
 -Hassan Alwayel @Bowayel hsn.Alwayel@gmail.com
 -Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
+
 
