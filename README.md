@@ -320,8 +320,13 @@
 
 **Students**
 
+
 - Ali Karam - @airb24 aliibrahim4793@gmail.com
 - Hassan Alwayel @Bowayel hsn.Alwayel@gmail.com
 - Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
+- Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
+
+
+
 
 
