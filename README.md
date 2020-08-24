@@ -319,3 +319,5 @@
 - Ali Alduaij - @AliAlduaj aliaalduaij@gmail.com
 
 **Students**
+
+- Dalal AlRasheedi @Dalkwt94 ce_dalalalrasheedi@hotmail.com
