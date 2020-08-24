@@ -319,3 +319,5 @@
 - Ali Alduaij - @AliAlduaj aliaalduaij@gmail.com
 
 **Students**
+
+- Eman AL-Kandari @EmanAALK emanalkandarii@gmail.com
