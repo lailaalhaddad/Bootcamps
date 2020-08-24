@@ -321,6 +321,7 @@
 **Students**
 
 
+- Alia Al Abduljalil - @alia-alabduljalil aliaanmar@gmail.com
 - Fatma AlOlayan - @fatma-alolayan temaalolayan@hotmail.com
 - Assad Assad - @Assadribhi assadribhi@gmail.com
 - Zahraa BaharAluloom @ZhraaBaharAluloom zahraambaharaluloom@gmail.com
@@ -331,10 +332,8 @@
 - Yousif AlOzairi - @yalozairi yalozairii@gmail.com
 - Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
 - Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
-- Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
--Hassan Alwayel @Bowayel hsn.Alwayel@gmail.com
--Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
-- Shaikha Alammari @shaikhalammari shaikha@alammari.co
+- Shaikha Alammari @shaikhalammari shaikha@alammari.com
+
 
 
 
