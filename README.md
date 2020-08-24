@@ -319,3 +319,4 @@
 - Ali Alduaij - @AliAlduaj aliaalduaij@gmail.com
 
 **Students**
+-Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
