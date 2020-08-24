@@ -319,4 +319,7 @@
 - Ali Alduaij - @AliAlduaj aliaalduaij@gmail.com
 
 **Students**
+
 -Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
+- Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
+
