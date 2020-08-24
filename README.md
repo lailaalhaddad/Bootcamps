@@ -292,7 +292,6 @@
 
 **Students**
 
-
 - Ahmed AlSalman @ahmedalsalman ahmedealsalman@gmail.com
 - Abdelmajeed Shaheen @abdelmajeed.shaheen shaheen.abdelmajeed@outlook.com
 - Hani Hamshari @NeroBeats Hani.Hamshari@hotmail.com
@@ -311,3 +310,4 @@
 - Yazan Al-Husamia @yazan.alhusamia yazan.alhusamia@outlook.com
 - Ayham Samara @SamaraZed Ayham.Samara@live.com
 
+## Full-Stack - Summer 2020
