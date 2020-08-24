@@ -316,6 +316,5 @@
 
 - Mshary AlSharekh @TheMshary mshary@joincoded.com
 - Laila AlKandery - @lailz laila.a@joincoded.com
-- example guy....
 
 **Students**
