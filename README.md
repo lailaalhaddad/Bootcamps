@@ -340,6 +340,6 @@
 
 ## Live - Riyadh 2020
 
-**Instrucstorts**
+**Instructors**
 
-**Studentssss**
+**Students**
