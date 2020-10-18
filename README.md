@@ -342,6 +342,10 @@
 
 **Instructors**
 
+- Hamza Makia @DarthHamza hamza@joincoded.com
 - Fawaz Al-Mutairi - @smokeme fawaz@joincoded.com
+- Laila Bee - @lailalelouch laila.b@joincoded.com
+- Khalid Al Mohammed @khm56 kalmohammed56@gmail.com
+- Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students**
