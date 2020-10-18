@@ -342,4 +342,6 @@
 
 **Instructors**
 
+- Fawaz Al-Mutairi - @smokeme fawaz@joincoded.com
+
 **Students**
