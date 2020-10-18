@@ -349,3 +349,5 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students**
+
+- Mohammed Alzaid @malzaid0 m.al-zaid@live.com
