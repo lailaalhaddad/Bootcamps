@@ -349,4 +349,9 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students**
+
 - Shahd Allemie @shahdallemie0
+- Ali Aldobyan @AliAldobyan ali.aldobyan@gmail.com
+- Heba Flemban @hebaflemban flembanheba@gmail.com
+- Mohammed Alzaid @malzaid0 m.al-zaid@live.com
+- Atheen Aleesa @atheen aatheen.ds@gmail.com
