@@ -349,3 +349,4 @@
 - Aziz Alsaffar @octowl aziz@joincoded.com
 
 **Students**
+- Shahd Allemie @shahdallemie0
