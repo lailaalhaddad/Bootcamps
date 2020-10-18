@@ -350,9 +350,9 @@
 
 **Students**
 
+- Shahd Allemie @shahdallemie0
 - Ali Aldobyan @AliAldobyan ali.aldobyan@gmail.com
 - Heba Flemban @hebaflemban flembanheba@gmail.com
 - Mohammed Alzaid @malzaid0 m.al-zaid@live.com
 - Maha Alkhuraiji @Msk6
-
-
+- Atheen Aleesa @atheen aatheen.ds@gmail.com
