@@ -356,4 +356,9 @@
 - Mohammed Alzaid @malzaid0 m.al-zaid@live.com
 - Maha Alkhuraiji @Msk6
 - Atheen Aleesa @atheen aatheen.ds@gmail.com
+
 - Khalid AlMuhawis @khalidalmuhawis khalidalmuhawis0@gmail.com
+
+- Hend Mohammed @hanodims Hend--Mohammed@outlook.com
+- Raghad Alrasheed @Raghaadmr Raghad_alrasheed@hotmail.com
+
