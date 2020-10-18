@@ -337,3 +337,5 @@
 - Anas Meshal @a.marzou8 Fire-Ball-KwT@hotmail.com
 - Luis Velasquez @luiseduardovb le_velasquez@yahoo.com
 - Shaikha Alammari @shaikhalammari shaikha@alammari.com
+
+## Live - Riyadh 2020
