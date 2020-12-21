@@ -372,3 +372,7 @@
 **Students**
 
 - Sara Al-Haddad @saraadelalhaddad sara.alhaddad@colorado.edu
+- Salwa Baqer @salwa.baqer s.abaqer@hotmail.com
+- Khaled Almansour @kalmansour khaledalmansour24@gmail.com
+- Mohammad Hasan @mohammadhasan3 mohamed.hassan940@hotmail.com
+
