@@ -361,3 +361,5 @@
 - Ghadeer Alanazi @ghad1ee2r3
 - Khalid AlMuhawis @khalidalmuhawis khalidalmuhawis0@gmail.com
 - Mariam Mohamed @mmrg98 mariam.elgaria98@gmail.com
+
+## Full-Stack - Fall 2020
