@@ -366,4 +366,4 @@
 
 **Instructors**
 
-**Stduents**
+**Students**
