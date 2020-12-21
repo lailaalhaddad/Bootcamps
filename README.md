@@ -371,6 +371,7 @@
 
 **Students**
 
+- Rahaf Alenezi @ralenezi ralenezi71@gmail.com
 - Sara Al-Haddad @saraadelalhaddad sara.alhaddad@colorado.edu
 - Salwa Baqer @salwa.baqer s.abaqer@hotmail.com
 - Khaled Almansour @kalmansour khaledalmansour24@gmail.com
