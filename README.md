@@ -370,3 +370,5 @@
 - Laila AlKandery @lailz laila.a@joincoded.com
 
 **Students**
+
+- Sara Al-Haddad @saraadelalhaddad sara.alhaddad@colorado.edu
