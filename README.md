@@ -395,6 +395,17 @@
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
 
 **Students**
-Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+
 
 - Nadeem Alqattan @nadeemalqattan nadeemalqattan@gmail.com
+- Hawra Ameer @HawraAmeer hwra.ameer97@gmail.com
+- Ahmed Abdeen @A-Abdeen ahmed.yahya18@gmail.com
+- Mahmood Alwatani @Mahmood28 Mahmoodalwatani@gmail.com
+- Sadeq AlMansoor @salman-23 sadiq.almansoor@gmail.com
+- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
+- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+- Mohamed Hamdan @mohammedtnh mohammed.tnh@gmail.com
+- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
+- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+- Jannat Jameel @JannatJameel j.abdulredha@gmail.com
+- Abdullah Almeshekah @almeshekah aalmeshekah@gmail.com
