@@ -397,6 +397,7 @@
 
 **Students**
 
+- Ahmed Abdeen @A-Abdeen ahmed.yahya18@gmail.com
 - Mahmood Alwatani @Mahmood28 Mahmoodalwatani@gmail.com
 - Sadeq AlMansoor @salman-23 sadiq.almansoor@gmail.com
 - Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
