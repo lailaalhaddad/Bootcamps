@@ -393,6 +393,7 @@
 
 - Laila AlKandery @lailz laila.a@joincoded.com
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
+- Abdullah Almeshekah @almeshekah aalmeshekah@gmail.com
 
 **Students**
 
