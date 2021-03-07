@@ -395,6 +395,8 @@
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
 
 **Students**
+
+- Mohamed Hamdan @mohammedtnh mohammed.tnh@gmail.com
 - Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
-Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
-REMOVE MEE
+- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+
