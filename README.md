@@ -393,8 +393,15 @@
 
 - Laila AlKandery @lailz laila.a@joincoded.com
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
+- Abdullah Almeshekah @almeshekah aalmeshekah@gmail.com
 
 **Students**
 
-- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
 - Ahmed Abdeen @A-Abdeen ahmed.yahya18@gmail.com
+- Mahmood Alwatani @Mahmood28 Mahmoodalwatani@gmail.com
+- Sadeq AlMansoor @salman-23 sadiq.almansoor@gmail.com
+- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
+- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+- Mohamed Hamdan @mohammedtnh mohammed.tnh@gmail.com
+- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
+- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
