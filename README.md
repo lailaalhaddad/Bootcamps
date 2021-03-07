@@ -395,3 +395,5 @@
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
 
 **Students**
+
+- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
