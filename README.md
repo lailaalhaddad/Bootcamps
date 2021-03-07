@@ -396,12 +396,11 @@
 
 **Students**
 
-
 - Sakeena Traif @SakeenaTraif s.traif30@gmail.com
 - Mohammad Hussein @mhussein15 mhalfakih15@gmail.com
 - Nadeem Alqattan @nadeemalqattan nadeemalqattan@gmail.com
 - Rabab Sayed Amin @robie09 robie08_@outlook.com
-- Ayman Alshaikh "AymanAlshaikh aymanxalshaikh@outlook.com
+- Ayman Alshaikh @AymanAlshaikh aymanxalshaikh@outlook.com
 - Hawra Ameer @HawraAmeer hwra.ameer97@gmail.com
 - Ahmed Abdeen @A-Abdeen ahmed.yahya18@gmail.com
 - Mahmood Alwatani @Mahmood28 Mahmoodalwatani@gmail.com
