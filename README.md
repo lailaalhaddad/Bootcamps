@@ -392,5 +392,6 @@
 **Instructors**
 
 - Laila AlKandery @lailz laila.a@joincoded.com
+- AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
 
 **Students**
