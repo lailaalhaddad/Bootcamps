@@ -387,4 +387,4 @@
 - Asmaa Alotaibi @Asmaa-Alotaibi asmaa_otaibi@yahoo.com
 - Omar Alibrahim @omsi96 omar@barmej.com
 
-## KSA/BH - Spring 2021
+## KSA/BH Full Stack 2021
