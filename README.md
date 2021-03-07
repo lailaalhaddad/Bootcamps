@@ -406,8 +406,7 @@
 - Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
 - Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
 - Mohamed Hamdan @mohammedtnh mohammed.tnh@gmail.com
-- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
-- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+- Walaa Mohsen @Walaam126 walaamajeed12@gmail.com
 - Jannat Jameel @JannatJameel j.abdulredha@gmail.com
 - Abdullah Almeshekah @almeshekah aalmeshekah@gmail.com
 
