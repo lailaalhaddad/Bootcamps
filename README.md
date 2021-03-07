@@ -387,7 +387,7 @@
 - Asmaa Alotaibi @Asmaa-Alotaibi asmaa_otaibi@yahoo.com
 - Omar Alibrahim @omsi96 omar@barmej.com
 
-## KSA/BH - you can't stop me 2021
+## KSA/BH - Spring 2021
 
 **Instructors**
 
@@ -397,3 +397,18 @@
 **Students**
 
 - Ismail Qamber @IsmailQamber ism-you-95@hotmail.com
+- Sakeena Traif @SakeenaTraif s.traif30@gmail.com
+- Mohammad Hussein @mhussein15 mhalfakih15@gmail.com
+- Nadeem Alqattan @nadeemalqattan nadeemalqattan@gmail.com
+- Rabab Sayed Amin @robie09 robie08_@outlook.com
+- Ayman Alshaikh "AymanAlshaikh aymanxalshaikh@outlook.com
+- Hawra Ameer @HawraAmeer hwra.ameer97@gmail.com
+- Ahmed Abdeen @A-Abdeen ahmed.yahya18@gmail.com
+- Mahmood Alwatani @Mahmood28 Mahmoodalwatani@gmail.com
+- Sadeq AlMansoor @salman-23 sadiq.almansoor@gmail.com
+- Hajar AlGhannami @hajarghannami @hajarghannami@outlook.com
+- Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+- Mohamed Hamdan @mohammedtnh mohammed.tnh@gmail.com
+- Walaa Mohsen @Walaam126 walaamajeed12@gmail.com
+- Jannat Jameel @JannatJameel j.abdulredha@gmail.com
+- Abdullah Almeshekah @almeshekah aalmeshekah@gmail.com
