@@ -391,4 +391,6 @@
 
 **Instructors**
 
+- AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
+
 **Students**
