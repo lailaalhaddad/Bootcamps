@@ -387,7 +387,7 @@
 - Asmaa Alotaibi @Asmaa-Alotaibi asmaa_otaibi@yahoo.com
 - Omar Alibrahim @omsi96 omar@barmej.com
 
-## KSA/BH - you can't stop me 2021
+## KSA/BH - Spring 2021
 
 **Instructors**
 
@@ -395,3 +395,6 @@
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
 
 **Students**
+Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
+
+- Sakeena Traif @SakeenaTraif s.traif30@gmail.com
