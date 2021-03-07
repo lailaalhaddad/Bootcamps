@@ -395,9 +395,8 @@
 - AlHamzah Abdulmunem @DarthHamza hamza@joincoded.com
 
 **Students**
-Ahmed AlKhunaizi @aakhunaizi aakhunaizi@gmail.com
 
-
+- Mohammad Hussein @mhussein15 mhalfakih15@gmail.com
 - Nadeem Alqattan @nadeemalqattan nadeemalqattan@gmail.com
 - Rabab Sayed Amin @robie09 robie08_@outlook.com
 - Ayman Alshaikh "AymanAlshaikh aymanxalshaikh@outlook.com
